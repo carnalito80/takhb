@@ -41,3 +41,9 @@ När du köper arbeten från oss betalar du bara 70 % av arbetskostnaden inklusi
 Vill ni veta mer om hur ROT-avdraget fungerar se [Skatteverkets sida](https://www.skatteverket.se/privat/fastigheterochbostad/rotochrutarbete.4.2e56d4ba1202f95012080002966.html "Skatteverkets sida"). 
 
 Välkommna till Takläggare Helsingborg !
+
+## Samarbeten
+Vi samarbetar med lite olika bra företag i Malmö, Helsingborg, Göteborg.
+Ett urval:
+- [Flyttstädning Göteborg](https://xn--flyttstdning-gteborg-hzb71b.com/) är ett gediget städföretag som har specialiserat sig på flyttstädning
+- [Målare Malmö](https://www.xn--mlaremalm-52a9q.nu/) mycket duktiga målare.

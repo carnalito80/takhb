@@ -15,3 +15,5 @@ Takläggare Helsingborg är ett nystartat företag som erbjuder kompletta lösni
 Vårt mål är att kunden ska stå i centrum, känner sig trygg och delaktig med beslut som tas och arbetets gång, och till slut är nöjd samt tillfreds med resultatet. 
 
 **Vill ditt företag synnas på denna sida?** Kontakta oss via [formuläret](/besiktning) idag!
+
+Sidan är utvecklad av [Infinity-IT](https://www.infinity-it.se/)
